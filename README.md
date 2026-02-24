@@ -8,7 +8,7 @@ wip in everything but just going to add some stuff here that I just like so yea
 </p>
 </details>
 <p align="center">
-  <img src="https://64.media.tumblr.com/cd6a0b1c43d17602c36367493eb81fdb/47eadc12dbf74b02-71/s250x400/f6aac45f72e1f7e443dccf52a60e0bfba2d9fa41.gifv" alt="animated" > <img src="https://64.media.tumblr.com/7e361d38b3a6289bbe6d2d69dcf2752b/47eadc12dbf74b02-ab/s250x400/1ab40ad0b425828cda0e160069a336c5ca7d116a.gifv" alt="amimated"> 
+  <img src="https://64.media.tumblr.com/cd6a0b1c43d17602c36367493eb81fdb/47eadc12dbf74b02-71/s250x400/f6aac45f72e1f7e443dccf52a60e0bfba2d9fa41.gifv" alt="animated" > <img src="https://64.media.tumblr.com/7e361d38b3a6289bbe6d2d69dcf2752b/47eadc12dbf74b02-ab/s250x400/1ab40ad0b425828cda0e160069a336c5ca7d116a.gifv" alt="amimated"> <img src="https://64.media.tumblr.com/0b982711055df7d2c9e288023a2923f6/ab084ec4244aeedc-cd/s250x400/d68146e30b1913cfb436be9d27aecc822ea57da6.gifv" alt="amimated"> 
 
 
 </p>
