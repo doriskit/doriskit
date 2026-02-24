@@ -14,4 +14,4 @@ wip in everything but just going to add some stuff here that I just like so yea
 </p>
 </details>
 <p allign="center">
-          <img src="https://64.media.tumblr.com/260f6f058b2b461e4bf979f99c981e47/dd851ed67dd48774-52/s100x200/d67577017731befeea4ce98134f25b2626eb6714.pnj" alt="amiated">
+<img src="https://64.media.tumblr.com/260f6f058b2b461e4bf979f99c981e47/dd851ed67dd48774-52/s100x200/d67577017731befeea4ce98134f25b2626eb6714.pnj" alt="amiated"> <img src="https://64.media.tumblr.com/84524e59624acdfb198c6c509a9df9b0/f1413ef45abf2485-9e/s100x200/04fd844727b2f6d4f37cc9986a0cf15d7bb519d7.gifv" alt="amiated"> <img src="https://64.media.tumblr.com/c8e8255266563289203e1d34088e5010/79d8b316934d24c3-3e/s100x200/22ffb4c2c864710a3cee9c4339905bd0ec7aed47.gifv" alt="amiated"> <img src="https://64.media.tumblr.com/84784366e8645f95362cfbf77dc56c87/79d8b316934d24c3-65/s100x200/fae8663499b6bc9d75d78d91279874875ae917b3.gifv" alt="amiated">
