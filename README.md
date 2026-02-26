@@ -20,4 +20,4 @@ wip in everything but just going to add some stuff here that I just like, so yea
 </p>
 </details>
 <p allign="center">
-<img src="" alt="amiated">
+
