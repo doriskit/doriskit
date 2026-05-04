@@ -5,7 +5,7 @@ wip in everything but just going to add some stuff here that I just like, so yea
   ˶ᵔ ᵕ ᵔ˶ <img src="https://64.media.tumblr.com/ca01b4bde0808bf3584ef4cbb3dd0f76/b18aff3ce9323114-7c/s75x75_c1/6694e17317fece7cf72ad039c90895c4b5f73821.gifv" alt="aniated">
 </p>
 
-As for now, for rn I'm taking a break from discord and ponytown, for my mental health, but I'll probably be on roblox here or there, so yea depends on how long my break is, hopefully long enough cuz I need it anyway. Thx to all of my friends and my bf (jj) for support, you guys have no idea this means to me, so yea, I'll be back so dw alr :> and uhhh I'll update this bio in a bit, so yea locked in ppl HELP, but anyways, see you guys in 2 months, or idk depends when I'm back :P -doris/nat
+As for now, rn I'm taking a break from Discord and Ponytown, for my mental health, but I'll probably be on Roblox here or there, so yeah depends on how long my break is, hopefully long enough cuz I need it anyway. Thx to all of my friends and my bf (jj) for support, you guys have no idea what this means to me, so yeah, I'll be back so dw alr :> and uhhh I'll update this bio in a bit, so yea locked in ppl HELP, but anyways, see you guys in 2 months, or idk depends when I'm back :P -doris/nat
 
 <div aligm="center">
   
