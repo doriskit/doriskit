@@ -5,7 +5,7 @@ wip in everything but just going to add some stuff here that I just like, so yea
   ˶ᵔ ᵕ ᵔ˶ <img src="https://64.media.tumblr.com/ca01b4bde0808bf3584ef4cbb3dd0f76/b18aff3ce9323114-7c/s75x75_c1/6694e17317fece7cf72ad039c90895c4b5f73821.gifv" alt="aniated">
 </p>
 
-yall better follow @/burningsinss PLSS, he works so hard and trusts, yaro the drawing is in the wip :3 the lore behind is crazy BUT PLSS and ata for him might come soon so. yall better sign it
+yall better follow [@burningsinss](https://github.com/burningsinss) PLSS, he works so hard and trusts, yaro the drawing is in the wip :3 the lore behind is crazy BUT PLSS and ata for him might come soon so. yall better sign it
 
 <div aligm="center">
   
